@@ -1,0 +1,2 @@
+# projekt
+nem akarok egyest!
